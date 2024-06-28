@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Aslan518.
+- 👀 I’m interested in Science and Maths and their application in the Smart Energy domain. I am also a language enthusiast.
+- 🌱 I’m currently learning Smart Energy and the Built Environment at University College London (UCL).
+- 💞️ I’m looking to collaborate on energy sustainability-related projects.
+- 📫 How to reach me: aslan.huseynli.23@ucl.ac.uk
+- 😄 Pronouns: he/his/him
+- ⚡ Fun fact: I am left-handed.
